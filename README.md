@@ -2,7 +2,7 @@
 -  🚀 Senior Data Analyst | 📊 Data Storyteller | 📈 Insights Enthusiast
 - 🌱 I’m currently learning Spanish
 - 💞️ I’m eager to collaborate on advanced statistical analysis
-- 📫 How to reach me :ychentara@gmail.com
+- 📫 How to reach me : ychentara@gmail.com
 
 ## Senior Data Analyst | Specializing in Operational Efficiency and Therapeutic Outcome Analysis
 
